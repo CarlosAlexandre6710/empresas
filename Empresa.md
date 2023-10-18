@@ -4,4 +4,4 @@
 - 43 9834-7345
 - Produtos de video game
 
-- ![](tenor.com/pt-BR/view/falling-follen-gif-22135028)
+![](https://media.tenor.com/GtOVWlp-L24AAAAM/falling-follen.gif)
