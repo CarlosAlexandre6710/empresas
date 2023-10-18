@@ -2,6 +2,6 @@
 
 - Rua 7 de setembro
 - 43 9834-7345
-- Produtos de vladimir putin
+- Produtos de video game
 
--![](https://tenor.com/pt-BR/view/brindis-putin-gif-26069379)
+-![](https://tenor.com/pt-BR/view/falling-follen-gif-22135028)
