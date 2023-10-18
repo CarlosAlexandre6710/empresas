@@ -1,4 +1,4 @@
-# xandyzin - empresas
+# xandyzin jogos - empresas
 
 - Rua 7 de setembro
 - 43 9834-7345
